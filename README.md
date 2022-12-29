@@ -1,2 +1,0 @@
-# tbicSmvdu2022
- 
